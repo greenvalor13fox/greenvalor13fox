@@ -16,7 +16,7 @@ and other things I am suffering from. As I find peace and a little more of mysel
 and find the purpose to its creation. 
 - 💞️ I’m looking to collaborate on ...right now I would like to collaborate anything related to my classes so I do not fall behind as you can see I spent more time above... then the actual 
 reason why I signed up for github. Sigh, please bear with me I am atleast not oblivious to my irrational and im trying to get my foot in the right pace one foot at a time.
-- 📫 How to reach me ...reach me by this ?? isn't it. or echong3@art.edu thank you!
+- 📫 How to reach me ...reach me by this ?? isn't it. or Greenvalor13fox@gmail.com thank you!
 
 <!---
 greenvalor13fox/greenvalor13fox is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
